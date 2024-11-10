@@ -6,4 +6,4 @@ Sementara penjelasannya begitu dulu. Nanti saya edit lagi. Untuk lebih lanjut te
 
 ## Pengubahsuaian
 
-Ada beberapa bagian yang kosong ...
+Ada beberapa bagian yang kosong ... (sik aku repot eram, sumpah. Sementara ngene ae.)
